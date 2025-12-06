@@ -1,1 +1,1 @@
-Here you'll find free unlocked versions of those products still in production when we shut down the company in 2013 (the Obsolete folder contains final versions of our locked products and software that was no longer supported at that time)
+Here you'll find free unlocked versions of my products that were still in production when I shut down the company in 2013 (the Obsolete folder contains final versions of our locked products and software that was no longer supported at that time)
